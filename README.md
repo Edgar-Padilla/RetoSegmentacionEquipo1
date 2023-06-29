@@ -7,7 +7,7 @@ Padilla Luis Edgar Abidán
 
 Reyes Castro Luis Manuel
 
-SánchezZ García Carlos Alberto
+Sánchez García Carlos Alberto
 
 Ruiz Ortega Francisco Javier
 
