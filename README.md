@@ -5,11 +5,11 @@ El equipo está conformado por los siguientes integrantes:
 
 Padilla Luis Edgar Abidán
 
-Ruiz Ortega Francisco Javier
-
 Reyes Castro Luis Manuel
 
 SánchezZ García Carlos Alberto
+
+Ruiz Ortega Francisco Javier
 
 Daza Liñan Raul Andres
 
